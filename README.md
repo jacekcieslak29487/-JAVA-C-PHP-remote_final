@@ -9,3 +9,5 @@ Na zestaw składają się:
 KOLEJNOŚĆ WYSYŁANIA DANYCH JEST TAKA JAK POWYŻEJ.
 
 
+Wszelkie prawa zastrzeżone. Zabrania się wykorzystywania bez zgody autorów. 
+
